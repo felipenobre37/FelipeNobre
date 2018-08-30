@@ -1,7 +1,1 @@
 # FelipeNobre
-
-
-ADALADNADHAJDHAD
-
-
-aihdsBFJBaFAIF
